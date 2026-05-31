@@ -149,6 +149,6 @@ This experience helped me develop:
 
 # Contact 📬
 
-LinkedIn: www.linkedin.com/in/maría-guadalupe-martínez-chávez-bb661578
+LinkedIn: www.linkedin.com/in/maría-martínez-qatester-accountant
 
 Email: guadalupe_mc@hotmail.com
